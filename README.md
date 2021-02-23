@@ -1,4 +1,4 @@
-### Always Learning 🌱
+### Always learning new things! 🌱
 
 <!--
 **switch900/switch900** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
